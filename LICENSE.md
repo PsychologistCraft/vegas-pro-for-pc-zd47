@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with Vegas Pro for PC | Vegas Pro for Windows professional Plugin: AI-enhanced-editing & multi-cam-editing, the #1 plugin.
 
 
 
